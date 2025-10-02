@@ -1,1 +1,1 @@
-This a website for Tect Fest 2025
+Tect Fest 2025
